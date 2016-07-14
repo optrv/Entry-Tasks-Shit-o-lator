@@ -1,2 +1,2 @@
 # Entry-Tasks-Shit-o-lator
-Entry Tasks + Shit-o-lator 3.1 ;)
+Entry Tasks + Shit-o-lator 3.2 ;)
